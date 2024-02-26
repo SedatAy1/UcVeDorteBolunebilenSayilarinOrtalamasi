@@ -1,0 +1,2 @@
+# UcVeDorteBolunebilenSayilarinOrtalamasi
+UcVeDorteBolunebilenSayilarinOrtalamasi
